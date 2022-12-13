@@ -1,1 +1,1 @@
-https://CupidusMoriri.github.io/rsschool-cv/cv
+https://CupidusMoriri.github.io/rsschool-cv/
