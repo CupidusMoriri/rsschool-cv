@@ -1,1 +1,1 @@
-# rsschool-cv
+https://CupidusMoriri.github.io/rsschool-cv/
